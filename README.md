@@ -1,4 +1,6 @@
 ![a](https://64.media.tumblr.com/2a6446fdf78ae262b23357b2bb7e3eff/eb07655626152408-82/s500x750/a659fd94ff87caa81ab8e1c741620ca89fd906d1.webp)
+jome germ anthony // he/him
+
   [strwpage](https://samthitivoranan.straw.page)   [guns](https://guns.lol/samthitivoranan)   [yume](https://samthony.straw.page)
 
 <!--
