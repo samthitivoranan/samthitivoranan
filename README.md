@@ -1,4 +1,5 @@
-[strwpage](https://samthitivoranan.straw.page)
+[strwpage](https://samthitivoranan.straw.page)   [guns](https://guns.lol/samthitivoranan)   [yume](https://samthony.straw.page)
+[!](https://i.pinimg.com/736x/3b/a0/bd/3ba0bd5d662e46409fbf6acb240c305b.jpg)
 <!--
 **samthitivoranan/samthitivoranan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
